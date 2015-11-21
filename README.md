@@ -9,3 +9,5 @@ He had to bury his best friend in the ground.
 He made a tomb stone especially for his fury friend.
 
 It even had a beautiful engraving of his parrot.
+
+While he was there, he actually met another fury parrot.
