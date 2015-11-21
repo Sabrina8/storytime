@@ -11,3 +11,5 @@ He made a tomb stone especially for his fury friend.
 It even had a beautiful engraving of his parrot.
 
 While he was there, he actually met another fury parrot.
+
+And they became the best of friends. It was a happy ending!
